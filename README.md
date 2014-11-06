@@ -1,7 +1,6 @@
-Arcadia -  Free HTML TEMPLATE
+Arcadia -  Free HTML Landing Page
 =======
 
-Arcadia - HTML Landing Page
 
 
 Arcadia - Free PSD Landing Page Design by Alan Podemski
